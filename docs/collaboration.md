@@ -1,3 +1,3 @@
 # Collaboration Guidelines
 
-Collaboration requires clear communication and well-defined responsibilities.
+collaboration requires adaptability, trust, and continuous alignment among team members.
